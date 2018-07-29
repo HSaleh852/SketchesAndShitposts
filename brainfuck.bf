@@ -1,4 +1,4 @@
-[Wrote this long ago, no idea what this does]
+[Wrote this long ago, no idea what it does]
 
 +>+<
 [
